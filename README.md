@@ -7,7 +7,7 @@
 
 <h3 align="left">A passionate Full Stack Developer</h3>
 
-- 🌱 I enjoy playing piano and drums and speanding time with the family!
+- 🌱 I enjoy playing piano and drums and spending time with the family!
 
 - 📫 How to reach me **bcolindres2019@gmail.com**
 
