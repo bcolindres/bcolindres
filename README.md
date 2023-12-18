@@ -9,7 +9,7 @@
 
 - 🌱 I enjoy playing piano and drums and spending time with the family!
 
-- 📫 How to reach me **bcolindres2019@gmail.com**
+- 📫 How to reach me, message me **https://www.linkedin.com/in/brian-colindres-339442129/**
 
 - ⚡ Fun fact **I speak 2 languages: English & Spanish.**
 
